@@ -4,7 +4,7 @@
 - 📫 How to reach me: jerope2000@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm not yisus Christ
-- 📝 Inspiring phrase: Depression should not come from having the opportunity to study what you love.
+- 📝 Inspiring phrase: Sadness should not come from having the opportunity to study what you love.
 
 
 <!---
